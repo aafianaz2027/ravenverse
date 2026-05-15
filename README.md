@@ -1,2 +1,1 @@
-# ravenverse
-just a bit about me
+just a bit about me but in a gen-z way
